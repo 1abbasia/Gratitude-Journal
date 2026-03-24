@@ -1,1 +1,3 @@
-Right now I am grateful for Mitra making me understand things
+# Gratitude Journal
+
+### Grateful for being in this program
